@@ -1,3 +1,7 @@
+![Screenshot_2024-09-20_215939-fHBzLrXkG-transformed (1)](https://github.com/user-attachments/assets/ec3784be-d78b-4105-87b4-6c706a7a07a0)
+
+
+
 🎓 Pursuing a Bachelor's in Technology, specializing in Python, Cybersecurity, Network and Information Security, MySQL, Science, and Technology. Committed to utilizing technology to innovate and tackle intricate challenges.
 
 🔵 Exploring Diverse Interests:
